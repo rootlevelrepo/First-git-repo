@@ -1,4 +1,6 @@
 # Demo
 
-Description
-Small update
+Learning to learn things
+
+Never quit learning
+
